@@ -1,0 +1,2 @@
+use Buffy;
+BUffY bUFFY BUffY bUFFY bUfFy buffy BUFfy	buFFY BufFy	BufFY	bUFfy BuFFY buffy	bufFy bUffY buFFy bUFFy	bufFY	bUffY buFFy buFFY BufFY	bUFfy	bufFy BUfFY	bufFy	buffy buFFY bUffY	BuFfy	bUFfy	BUfFY buFfY	Buffy bUffy	bufFy BUFFy	BuFFy	bUFfy bufFy BuffY	buffY	BuFfy	BUfFY bUffy	buFFy	BUffy	bUffy 
